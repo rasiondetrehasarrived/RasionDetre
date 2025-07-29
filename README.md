@@ -1,5 +1,5 @@
 # RasionDetre
--
+- heya mate
 ## school update
 
 ok so, school had started already and i wanted to js put this as a heads up for my friends. i am gonna be offline a lot due to school, homework, and pressure (holy name drop.) i am very busy, along wiht how my laptop is breaking piece by piece. 
